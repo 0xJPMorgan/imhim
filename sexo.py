@@ -2,8 +2,7 @@ tg#asddsfsdfffddfsfdsasdasddsfh
 #dfsfewrerfgsfdssadafdfsdfdssadasdssdfssdghfsdfasddfgashgjdasdsdfsdfghxcv
 #jjjjjjjjjm
 #asdsdfdfgdfgsdfdf00dghsdfsdfkjdfgfg
-#sdfghijhlujkh
-#oo0ksdfdfg,fgjkdfyhjgsdfsdfgfh
+#sdfghijhlujkhasd
 #n njjinujdsjj
 #dfggkujhn
 #dfg
